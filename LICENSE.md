@@ -1,4 +1,4 @@
-
+Affinity Photo for macOS rare Template: color correction & masking tools is the best Affinity Photo for macOS template, featuring color correction and masking tools. Safe,
 
 
 
